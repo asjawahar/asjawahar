@@ -6,4 +6,4 @@
 
 ### Contact Me 📧
 * By Email: asjawahar05052003@gmail.com
-* On LinkedIn: [Bala Subramaniam](https://www.linkedin.com/in/jawahar-a-s-913675213/)
+* On LinkedIn: [Jawahar A S](https://www.linkedin.com/in/jawahar-a-s-913675213/)
